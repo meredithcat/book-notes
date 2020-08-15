@@ -1,0 +1,7 @@
+# [Wild](https://www.goodreads.com/book/show/12262741-wild)
+
+## Author: Cheryl Strayed
+
+Wild is the story of a young woman who, embarking on a long journey, found her inner strength and a capacity to forgive herself and move forward into a better future. Cheryl Strayed hiked over 1,000 miles of the Pacific Crest Trail. Before she set out at age 26, her life was in shambles - as a result of her grief from her mother's death, she had cheated on her husband, dated questionable men, and experimented with heroin. The trail served as her intervention, first physically breaking down her body from the strains of her too-small shoes and too-heavy pack, then slowly building up her physical strength, endurance, and self-confidence. The silences of the trail gave her the space to come to grips with her grief and anger, and move into a newfound acceptance of her true self, flaws and all.
+
+_What if I forgave myself? I thought. What if I forgave myself even though I'd done something I shouldn't have? What if I was a liar and a cheat and there was no excuse for what I'd done other than because it was what I wanted and needed to do? What if I was sorry, but if I could go back in time I wouldn't do anything differently than I had done? What if I'd actually wanted to fuck every one of those men? What if heroin taught me something? What if yes was the right answer instead of no? What if what made me do all those things everyone thought I shouldn't have done was what also had got me here? What if I was never redeemed? What if I already was?_
